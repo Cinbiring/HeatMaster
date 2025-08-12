@@ -1,0 +1,1 @@
+# HeatMaster — proba izolinie
